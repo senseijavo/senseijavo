@@ -2,7 +2,7 @@
 - 👀 I’m interested in video gaming, languages, watching youtube and reading mangas.
 - 🌱 I’m currently learning to code and I an using this to upload some stuff I coded :D
 - 💞️ I’m looking to collaborate on nothing right now.
-- 📫 How to reach me
+- 📫 How to reach me:
      Mail: teddyschoendorfer@icloud.com | Instagram: mistkoerper1731_ | Twitter: Mottenpfiffi
 
 <!---
