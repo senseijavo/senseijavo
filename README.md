@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning to code and I an using this to upload some stuff I coded :D
 - 💞️ I’m looking to collaborate on nothing right now.
 - 📫 How to reach me:
-     Mail: teddyschoendorfer@icloud.com | Instagram: mistkoerper1731_ | Twitter: Mottenpfiffi
+     Mail: mistkoerper07@yandex.com | Instagram: mistkoerper1731_ | Twitter: NewbRage
+    
 
 <!---
 senseijavo/senseijavo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
