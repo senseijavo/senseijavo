@@ -1,4 +1,5 @@
-- Hallo du Pissnelke
+Moien
+Maacht eng départ, dir Bastard
 
 <!---
 senseijavo/senseijavo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
